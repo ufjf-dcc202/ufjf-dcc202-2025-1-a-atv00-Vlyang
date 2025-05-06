@@ -1,1 +1,1 @@
-Thiago de Oliveira 202465088a
+Thiago de Oliveira 202465088a thiagooliveira.silva@estudante.ufjf.br
